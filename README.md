@@ -1,0 +1,2 @@
+# reality
+Hacker always do
